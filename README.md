@@ -1,4 +1,4 @@
-### Namaste 🙏 
+### Namaste, I'm Akash Shetty 
 
 <!--
 **iakashshetty/iakashshetty** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
